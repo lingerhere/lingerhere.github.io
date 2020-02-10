@@ -1,7 +1,10 @@
 # Lingerhere
 
 ```
-Your presence still lingers here.
+And if you have to leave
+I wish that you would just leave
+'Cause your presence still lingers here
+And it won't leave me alone.
 ```
 
-[JGFI](https://www.google.com/search?q=%22your+presence+still+lingers+here%22&ie=UTF-8&oe=UTF-8)
+[<em>My Immortal</em>, B. Moody/A. Lee/D. Hodges.](https://youtu.be/CEGy7HHwJQY)
