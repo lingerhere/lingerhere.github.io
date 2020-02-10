@@ -7,4 +7,4 @@ I wish that you would just leave
 And it won't leave me alone.
 ```
 
-[<em>My Immortal</em>, B. Moody/A. Lee/D. Hodges.](https://youtu.be/CEGy7HHwJQY)
+Excerpted from [<em>My Immortal</em>](https://youtu.be/CEGy7HHwJQY), by B. Moody, A. Lee, and D. Hodges.
